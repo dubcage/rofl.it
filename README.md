@@ -13,4 +13,4 @@ Best investment ever.
 
 Help me afford lmao.it.com
 
-https://www.paypal.com/paypalme/jaketharry
+[![PayPal](https://img.shields.io/badge/Donate-PayPal-blue.svg)](https://www.paypal.com/paypalme/jaketharry)
