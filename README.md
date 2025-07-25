@@ -10,3 +10,7 @@ Best investment ever.
 
 ![Another Funny](/assets/image.webp)
 *Because laughter is the best medicine*
+
+Help me afford lmao.it.com
+
+https://www.paypal.com/paypalme/jaketharry
