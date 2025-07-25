@@ -5,8 +5,8 @@ Best investment ever.
 
 ## 📸 $$
 
-![ROFL Moment](/assets/images/image.png)
+![ROFL Moment](/assets/image.png)
 *Caption: This is why I bought the domain*
 
-![Another Funny](/assets/images/image.webp)
+![Another Funny](/assets/image.webp)
 *Because laughter is the best medicine*
